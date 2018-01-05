@@ -14,4 +14,4 @@ and the Max/MSP page:
 Pierre Puentes aka DRLZTN
 * [Facebook](https://www.facebook.com/derealizationn/)
 * [Instagram](https://www.instagram.com/pierreee1/)
-* [Tumblr](https://www.tumblr.com/dashboard)
+* [Tumblr](https://derealizationnn.tumblr.com/)
